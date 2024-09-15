@@ -7,7 +7,4 @@
 ![Screenshot 2024-09-15 185431](https://github.com/user-attachments/assets/2a3db6d1-af8c-45df-b4ef-4b2872ba899f)
 ![Uploading image.png…]()
 
-![Screenshot 2024-09-15 185615](https://github.com/user-attachments/assets/53e3f6a7-1a5c-4081-ae8c-4814dd04f0a6)
-
-
 ![Screenshot 2024-09-15 185525](https://github.com/user-attachments/assets/ffb1cad3-7560-41fe-a548-94b28d829bec)
